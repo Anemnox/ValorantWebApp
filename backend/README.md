@@ -1,2 +1,4 @@
 #Back End
-andrew talks a lot
+andrew sucks a lot
+aj is the king
+isaac reads a lot
