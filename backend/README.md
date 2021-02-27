@@ -1,3 +1,3 @@
 #Back End
-andrew shits a lot
-isaac fucks a lot
+andrew fucks a lot
+isaac shits a lot
